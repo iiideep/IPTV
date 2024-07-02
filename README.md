@@ -14,7 +14,7 @@
 2. IPTV直播源：节约你的视频会员成本
 3. 使用教程：节约你的折腾成本
 
-[点击购买](https://fk.wwkejishe.top/buy/18)（查看下图大纲展示，买断制，包更新）
+（查看下图大纲展示，买断制，包更新）
 
 ![2024最全IPTV电视直播源及工具大纲展示](https://usacdn.wangdu.site/file/blog-cdn/WP-CDN-02/2024/202406061423166.png)
 
